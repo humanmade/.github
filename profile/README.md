@@ -8,4 +8,4 @@ _____
 
 👀 We're hiring – [come join us](https://apply.workable.com/humanmade/).<br>
 📖 Read our [company handbook](https://handbook.hmn.md/).<br>
-🙋 Say hey on [Twitter](https://twitter.com/humanmade?lang=en) or [Linkedin](https://www.linkedin.com/company/human-made-limited).
+🙋 Say hey on [Twitter](https://twitter.com/humanmadeltd?lang=en) or [Linkedin](https://www.linkedin.com/company/human-made-limited).
