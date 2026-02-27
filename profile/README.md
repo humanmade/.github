@@ -1,4 +1,4 @@
-[<img width="2206" alt="198569063-7ec72567-6aae-44d9-8fc6-161de0dcb6c0" src="https://github.com/user-attachments/assets/12d04033-87b1-43b1-84e2-c3ffa09aab8a">](https://www.humanmade.com)
+[<img src="https://humanmade.com/uploads/2026/02/Linkedin-Social-Banner-–-Human-Made-–-Company-v3-scaled.jpg">](https://humanmade.com/)
 
 # 👋 Hey there! We're Human Made
 
